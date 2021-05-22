@@ -1,1 +1,1 @@
-# bgfc.glitch.me
+# [bgfc](https://bgfc.glitch.me)
